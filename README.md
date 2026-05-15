@@ -18,5 +18,5 @@ Profissional com perfil híbrido, unindo o rigor analítico das **Ciências Econ
 
 ### Como me encontrar:
 
-- **LinkedIn:** [linkedin.com/in/alexandremaranhao](https://www.linkedin.com/in/alexandremaranhao)
+- **LinkedIn:** [linkedin.com/in/alexandremaranhao](https://www.linkedin.com/in/jose-alexandre-maranhao/)
 - **E-mail:** alexandreqmj@gmail.com
